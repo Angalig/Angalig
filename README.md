@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Angalig
+- 👀 I’m interested in ... Coding
+- 🌱 I’m currently learning ... Coding
+- 💞️ I’m looking to collaborate on ... Coding
+- 📫 How to reach me ... On Discord @angali188#6596
